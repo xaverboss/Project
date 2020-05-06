@@ -1,0 +1,1 @@
+# Szamtech-1C
